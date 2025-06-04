@@ -1,0 +1,1 @@
+# Smart-Garagr-Capacity-BY-SIMATIC-MANAGER
